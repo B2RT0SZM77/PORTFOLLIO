@@ -1,0 +1,3 @@
+- 👋 Hello!
+- 👀 yes
+- 🌱 My discord: bartoszm77#0052 
